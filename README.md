@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+## sobre mim 
+sou estudante do 1 anio do sao vicente
+### me siga no instagram 
+@luis.jr_luz  :alien:
